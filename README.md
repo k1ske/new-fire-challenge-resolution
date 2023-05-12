@@ -1,0 +1,1 @@
+# new-fire-challenge-resolution
